@@ -1,0 +1,12 @@
+# meicaibook
+this is a notebook for my meicai work
+99a15efa78727c17
+8ffb7a022cc462c2
+779e848b3be7eef0
+816d48d61359b1f9
+708106939f87a945
+b70f985760b4470e
+6115c2e1d786eb2d
+58dc24e570cd3b27
+03845573bf8f78fe
+8e1df5bf79f01fb2
